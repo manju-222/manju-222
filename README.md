@@ -84,8 +84,8 @@ My previous data-centre experience involved server monitoring and system managem
 
 ## 📫 Connect With Me
 
-- LinkedIn: [Add your LinkedIn profile here]
-- Upwork: [Add your Upwork profile here]
+- LinkedIn: www.linkedin.com/in/manju-suthar-0b99302a7
+- Upwork: https://www.upwork.com/freelancers/~018ed3ad7b37b7ff4e?mp_source=share
 
 ---
 
